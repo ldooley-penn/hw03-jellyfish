@@ -34,3 +34,6 @@ For the tentacles I first grabbed a group of points at the base of the bell at f
 
 ## Animation
 
+https://github.com/user-attachments/assets/52b1d5f6-d48e-417b-974d-38d11694e0b3
+
+
